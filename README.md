@@ -1,4 +1,4 @@
-# Hi-There, I'm Miftah 👋
+# Hi-There, I'm Miftah 
 Mahasiswa **[Ilmu Komputer]** di **[Universitas Negeri Medan]**.
 ### Ilkom FMIPA
 
